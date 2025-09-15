@@ -11,4 +11,4 @@
 2. In a large bowl, whisk together the flour, sugar, and cocoa powder.
 3. Melt the butter and add it to the dry ingredients
 4. Pour into an 18' cake pan and set to bake for 15 minutes.
-5. enjoy ur caek :D 
+5. enjoy ur caek :)
